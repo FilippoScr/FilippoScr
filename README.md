@@ -1,12 +1,12 @@
-Ciao ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)Mi chiamo Filippo Scarfò
+Ciao![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)Mi chiamo Filippo Scarfò
 ======================================================================================================================================
 
-Front-End Web Developer
+Ho 33 anni e sono un Front-End Web Developer
 -----------------------
 
 Ora non ho molto tempo di scrivere ma poi lo farò.
 
-* 🌍  Ho 33 anni e vorrei tornare a Bologna o comunque in Emilia Romagna, purtroppo l'assenza di offerte lavorative durature non me lo permettono, chi affitta casa vuole garanzie, mi sto quindi impegnando per trovarle, cambiare città è l'unica cosa che può concedermi un futuro.
+* 🌍  Vorrei tornare a Bologna o comunque in Emilia Romagna, purtroppo l'assenza di offerte lavorative durature non me lo permettono, chi affitta casa vuole garanzie, mi sto quindi impegnando per trovarle, cambiare città è l'unica cosa che può concedermi un futuro.
 * ✉️  Come mi sto impegnando? In questo periodo sto lavorando a dei progetti Front-End, aggiornando GitHub e CV, ma l'impegno maggiore è quello di tenere accesa la fiamma degli stimoli, del fare, vorrei che questo non venisse sottovalutato e che non ci fossero pregiudizi valutativi a riguardo, gli stimoli sono una delle cose più importanti da cercare e ricevere, permettono di "fare bene" e "fare con piacere", non averne è poco produttivo e allontana tutti dalla felicità; tenete presente questo quando valutate ragazzi come me per offrirci lavoro, siamo tanti ad averne bisogno, di un futuro...
 * ✉️  Potrai contattarmi per lavoro tramite email: [filippo.scarfo.tec@gmail.com](mailto:filippo.scarfo.tec@gmail.com)
 

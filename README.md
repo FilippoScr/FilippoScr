@@ -6,7 +6,7 @@ Ho 33 anni e sono un Front-End Web Developer
 
 Ora non ho molto tempo di scrivere ma poi lo farò.
 
-* 🌍  Vorrei tornare a Bologna o comunque in Emilia Romagna, ma valuto anche altre regioni o nazioni, purtroppo l'assenza di offerte lavorative durature non me lo permette, chi affitta casa vuole garanzie, mi sto quindi impegnando per trovarle, cambiare città è l'unica cosa che può concedermi un futuro.
+* 🌍  Vorrei tornare a Bologna o comunque in Emilia Romagna, ma valuto anche altre regioni o nazioni, purtroppo l'assenza di offerte lavorative durature non me lo permette, perché chi affitta casa vuole garanzie, troppe, quindi mi sto impegnando per trovarle, cambiare città è l'unica cosa che può concedermi un futuro.
 * ✉️  Come mi sto impegnando? In questo periodo sto lavorando a dei progetti Front-End, aggiornando GitHub e CV, ma l'impegno maggiore è quello di tenere accesa la fiamma degli stimoli, del fare, vorrei che questo non venisse sottovalutato e che non ci fossero pregiudizi valutativi a riguardo, gli stimoli sono una delle cose più importanti da cercare e ricevere, permettono di "fare bene" e "fare con piacere", non averne è poco produttivo e allontana tutti dalla felicità; tenete presente questo quando valutate ragazzi come me per offrirci lavoro, siamo tanti ad averne bisogno, di un futuro...
 * ✉️  Potrai contattarmi per lavoro tramite email: [filippo.scarfo.tec@gmail.com](mailto:filippo.scarfo.tec@gmail.com)
 

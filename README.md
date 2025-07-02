@@ -1,4 +1,4 @@
-Ciao![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)Mi chiamo Filippo Scarfò
+![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)Mi chiamo Filippo Scarfò
 ======================================================================================================================================
 
 Ho 33 anni e sono un Front-End Web Developer

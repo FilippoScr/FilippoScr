@@ -6,11 +6,11 @@
 
 ### Ho 33 anni e sono un Front-End Web Developer
 
-🌐 Vorrei tornare a 🏠 Bologna o comunque in Emilia Romagna, ma valuto anche altre regioni o nazioni,  
+🌐 Vorrei tornare a 🏠 Bologna o comunque in 🎯 Emilia Romagna, ma valuto anche altre 📍 regioni o 🏯 nazioni,  
 purtroppo ❌ l'assenza di offerte lavorative durature 🚫 non me lo permette, perché chi affitta casa vuole troppe 📜 garanzie,  
 quindi mi sto 💪 impegnando a trovarle offrendo come prima cosa la disponibilità lavorativa di 🔄 360°:  
 🕐 Part-Time e 🕕 Full-Time, 🌙 notturni e 📅 giorni festivi, ✈️ trasferimento e 🧳 trasferte,  🏢 in sede e 🏠 da remoto).  
-Cambiare 🏯 città è l'unica cosa che può concedermi un ✨ futuro.
+🔀 Cambiare città è l'unica cosa che può concedermi un ✨ futuro.
 
 🔍 Come mi sto impegnando?  
 In questo periodo 👨‍💻 sto lavorando a dei progetti Front-End, aggiornando GitHub e CV,  

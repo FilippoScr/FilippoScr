@@ -20,7 +20,7 @@ gli 🧠 stimoli sono una delle cose più importanti da 🔍 cercare e 🎁 rice
 permettono di ✅ "fare bene" e 😊 "fare con piacere", 🚫 non averne rende poco produttivi e 🚫 allontana tutti dalla felicità;  
 💾 tenete presente questo quando 👍 valutate ragazzi come me per 🫴 offrirci lavoro, siamo 👥 tanti ad averne bisogno, di un ✨ futuro...
 
-🎉 Vi invito a leggere il mio 🧩 codice e a 👍 valutare qualche mio 🗿 lavoro: [Market3D](https://filipposcr.github.io/Giugno25-Market3D/)
+🎉 Vi invito a leggere il mio 🧩 codice e a 👍 valutare qualche mio 🗿 lavoro: [Market3D](https://filipposcr.github.io/Giugno25-Market3D/) [Simulazione Test](https://filipposcr.github.io/Novembre23-RicostruzioneAppEpicode/)
 
 ✉️ Potrete contattarmi per lavoro tramite 📬 email: [filippo.scarfo.tec@gmail.com](mailto:filippo.scarfo.tec@gmail.com)
 

@@ -13,8 +13,10 @@ quindi mi sto 💪 impegnando a trovarle offrendo come prima cosa la disponibili
 Cambiare 🏯 città è l'unica cosa che può concedermi un ✨ futuro.
 
 🔍 Come mi sto impegnando?  
-In questo periodo 👨‍💻 sto lavorando a dei progetti Front-End, aggiornando GitHub e CV, ma 💪 l'impegno maggiore è quello di tenere accesa la 🔥 fiamma degli 🧠 stimoli, del fare,  
-☝️ vorrei che questo non venisse 👎 sottovalutato e che non ci fossero 🙅‍♂️ pregiudizi valutativi a riguardo, gli 🧠 stimoli sono una delle cose più importanti da 🔍 cercare e 🎁 ricevere,  
+In questo periodo 👨‍💻 sto lavorando a dei progetti Front-End, aggiornando GitHub e CV,  
+ma 💪 l'impegno maggiore è quello di tenere accesa la 🔥 fiamma degli 🧠 stimoli, del fare,  
+☝️ vorrei che questo non venisse 👎 sottovalutato e che non ci fossero 🙅‍♂️ pregiudizi valutativi a riguardo,  
+gli 🧠 stimoli sono una delle cose più importanti da 🔍 cercare e 🎁 ricevere,  
 permettono di ✅ "fare bene" e 😊 "fare con piacere", 🚫 non averne rende poco produttivi e 🚫 allontana tutti dalla felicità;  
 💾 tenete presente questo quando 👍 valutate ragazzi come me per 🫴 offrirci lavoro, siamo 👥 tanti ad averne bisogno, di un ✨ futuro...
 
